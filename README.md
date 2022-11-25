@@ -1,0 +1,1 @@
+# --XBLSA---Testamos-o-novo-servidor-FREE-NO-KV-para-RGH
